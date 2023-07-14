@@ -8,4 +8,4 @@ My name is Nicholas and I am a undergraduate astronomy college student. I am com
 1. Pensight: https://pensight.com/x/astrohive
 2. TikTok: https://www.tiktok.com/@AstroHive
 3. YouTube: https://www.youtube.com/@AstroNicholas
-4. https://discord.com/invite/SbvEt3p4JK
+4. Discord: https://discord.com/invite/SbvEt3p4JK
