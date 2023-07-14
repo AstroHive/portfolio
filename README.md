@@ -9,3 +9,6 @@ My name is Nicholas and I am a undergraduate astronomy college student. I am com
 2. TikTok: https://www.tiktok.com/@AstroHive
 3. YouTube: https://www.youtube.com/@AstroNicholas
 4. Discord: https://discord.com/invite/SbvEt3p4JK
+
+#### Contact Me:
+1. Email: AstroHive@proton.me
