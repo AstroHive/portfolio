@@ -1,6 +1,7 @@
 # Portfolio GitHub Page
 ꧁Undergraduate Astronomy Student꧂
 
+
 ### About Me:
 "My name is Nik and I am an undergraduate student that is currently studying for a Bachelor of Science degree in Space Studies within the Astronomy concentration. I post content on both TikTok and YouTube but I do not have a set schedule of when I release content. The type of content that you can expect will be centered around my educational journey but I will also post computer science or gaming related content as well."
 
